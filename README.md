@@ -9,5 +9,3 @@
 
 ![post_159806_gn5ia9zlk0z4y1b3kbau5azt](https://user-images.githubusercontent.com/5728999/34113450-1e1cf95a-e453-11e7-8a94-8a86fe389468.jpg)
 
-
-<img src="https://user-images.githubusercontent.com/5728999/34113450-1e1cf95a-e453-11e7-8a94-8a86fe389468.jpg" alt="海の写真" title="空と海">
